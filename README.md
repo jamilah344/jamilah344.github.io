@@ -1,2 +1,2 @@
-# jamilah344.github.io
+# amourpropre.github.io
 GitHub Pages
